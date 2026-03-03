@@ -70,4 +70,4 @@ When you enjoy the process, you go deeper, stay consistent, and keep building fo
 
 ## Let’s Connect 🔗
 
-If you're interested in collaborating, discussing ideas, or building something meaningful, feel free to reach out.
+If you're interested in collaborating, discussing ideas, or building something meaningful, feel free to reach out through my website 🫶🏻
